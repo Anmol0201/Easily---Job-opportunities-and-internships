@@ -1,4 +1,4 @@
-Career Connect---Job-opportunities-and-internships
+Easily---Job-opportunities-and-internships
 
 
 
